@@ -1,0 +1,1 @@
+# hudawei996-com.goals.annotationtestjavagoogleautoservice
